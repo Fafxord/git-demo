@@ -13,4 +13,6 @@ Thanks for your attention.
 
 Спасибо за внимание.
 
+Fafxord added какуюту фигню
+
 Fafxord ттут тоже важна фигня 2
